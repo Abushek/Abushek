@@ -19,7 +19,7 @@
 
 #### You can reach me at:
 - Email 📧: abhishekdangeti2000@gmail.com
-- LinkedIn: https://www.linkedin.com/feed/
+- LinkedIn: [Abhishek Dangeti](https://www.linkedin.com/in/abhishek-dangeti-6775491a2/)
 
 
 ##### Thank you for reaching the end of the my profile! :D 
